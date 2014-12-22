@@ -36,2477 +36,1311 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The succession of the bishops of England since the first planting of Christian religion in this isla
+
+1. TO THE KINGS MOST EXCELLENT MAIESTIE, OVR GRATIOVS Soueraigne, IAMES by Gods mercifull prouidence of great Britaine, France and Ireland, the most potent and illustrious Monarch, and most deseruedly instiled, Defender of the true Catholike and Apostolike FAITH.
+
+1. To the Reader.
+Canterburyfol. 49.London.fol. 181.Winchester.fol. 207.Ely.fol. 285.Lincolnefol. 252.Couentry and Lic
+1. Clariss:o Viro DO:o FRA:co GODW: Epis:po Land:si Antiquitatum Britt:cae Eccl:ae oculatiss:o Indagatori, Restauratori fideliss:o Do:o optumè merenti SACRVM.
+
 #####Body#####
 
-1. CHAP. I.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. CHAP II.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. CHAP. III.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. CHAP. IIII.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Augustine.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Laurence.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Mellitus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Iustus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Honorius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6. Deus-dedit, or Adeodatus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7. Theodorus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8. Brithwald.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 9. Tatwyn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10. Nothelmus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11. Cuthbert or Cudbrict.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 12. Bregwyn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 13. Lambert. al. Iainbert.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 14. Athelard or Edelred.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15. Wlfred.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 16. Theologild.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17. Celnoth.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18. Athelredus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19. Plegmund.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20. Athelmu•.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21. Wlfelmus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22. Odo Seuerus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23. Dunstan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24. Ethelgar.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25. Siricius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26. Aluricius alias Alfricus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27. Elphege.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28. Liunig alias Lifwing.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29. Agelnothus alias Aethelnotus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 30. Eadsin.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31. Robert, surnamed Gemeticensis.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32. Stigand.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33. Lanfrank.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34. Anselm.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35. Rodolphus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36. William Corbell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37. Theobald.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38. Thomas Becket.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39. Richard.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40. Baldwin.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41. Reginald Fitz-loceline.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 42. Hubert walter.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 43 Stephen Langton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 44. Richard Wethershed.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. Saint Edmund.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 46. Boniface.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 47. Robert Kilwardby.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 48 Iohn Peckham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 49. Robert Winchelsey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 50. Walter Reynolds.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 51 Simon Mepham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 52. Iohn Stratford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 53. Tho. Bradwar•in.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 54 Simon Islip.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 55 Simon Langham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. William Wittlesey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 57 Simon Sudbury.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 58 William Courtney.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 59. Thomas Arundel.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 60. Henry Chichley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 61. Iohn Stafford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 62. Iohn Kemp.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 63. Thomas Bourchier.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 64. Iohn Moorton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 65. Henry Deane.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 66. William Warham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 67. Thomas Cranmer.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 68 Reginald Poole.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 69. Mathew Parker.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 70. Edmund Gryndall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 71. Iohn Whitgift.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 72. Rich Bancroft.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 73. George Abbot.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1 Mellitus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Ceadda.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3 Wina.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4 Erkenwalde.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. After Erkenwald, sate these in order successiuely.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33 William.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34 Hugh d'Oriuall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35. Mauritius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36 Richard Beauveyes.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27. Gilbertus Vniuersalis.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38. Robertus de Sigillo.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39. Richard Beauvey•.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40. Gilbert Foliot.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41. Richard Fitz-neale.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 42. William de Sancta Maria.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 43. Eustachius de Fauconbridge.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 44. Rogerus Niger.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 45. Fulco Basset.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 46. Henry de Wingham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17. Richard Talbot.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 48. Henry de Sandwich.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 49. Iohn de Chishull.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 50. Richard de Grauesend.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 51. Ralfe de Baldocke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 52. Gilbert Segraue.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 53. Richard Newport.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 54. Stephen Grauesend.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 55. Richard Byntworth, or Wentworth.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 56. Ralfe Stratford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 57. Michaell Northbrooke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 58. Simon Sudbury.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 59. William Courtney.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 60. Robert Braybrooke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 61. Roger Walden.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 62. Nicholas Bubwith.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 63. Richard Clifford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 64. Iohn Kemp.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 65 William Gray.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 66 Robert Fitz-Hugh.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 67 Robert Gilbert
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 68. Thomas Kempe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 69 Iohn Marshall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 70 Richard Hill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 71 Thomas Sauage.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 72 William Warham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 73 William Barnes.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 74 Richard Fitz-Iames.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 75 Cuthbert Tonstall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 76 Iohn Stokesley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 77 Edmund Boner.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 78 Nicholas Ridley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 79. Edmund Grindall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 80 Edwyn Sands.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 81 Iohn Elmer.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 82 Richard Fletcher.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 83. Rich. Bancroft.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 84 Richard Vaughan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 85 Thomas Rauis.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 86. George Abbot.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 87. Iohn King.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Birinus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Agilbertus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Wina, or Wini.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Eleutherius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Headda.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6. Daniel.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7. Humfridus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8. Kinehardus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 9. Hathelardus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-Then these:10 Egbaldus,11. Dudda.12. Kineberthus, He trauelled to Rome with the Lord Archbishop of CThe olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18. Swithunus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19. Adferthus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20. Dumbertus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21. Denewulsus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22 Athelmus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. Bertulsus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23. Frithstane.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24. Brinstan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25. Elphegus Calvus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26. Elssinus, alias Alssius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27. Brithelmus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28 Ethelwald.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29. Elphegus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 30. Kenulphus, alias Elsius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31. Brithwold.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32. Elsinus, or Eadsinus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33. Alwynus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34. Stigandus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35. Walkelyn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36. William Gifford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37. Henrie de Bloys.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38. Richard Tocliue alias More.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39. Godfridus de Lucy.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40. Peter de la Roche.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41. William de Raley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 42. Ethelmarus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 43 Iohn Gernsey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 44. Nicholas de Ely.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 45 Iohn de Pontissara, alias Pountois.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 46. Henry Woodloke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 47 Iohn Sandall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 48 Reginald Asserius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 49. Iohn de Stratford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 50. Adam Tarlton, alias de Orlton, or Arlton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 51. William Edindon.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 52. William Wickham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 53. Henry Beaufort.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 54 William Waynflet.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 55. Peter Courtney.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 56 Thomas Langton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 57 Richard Foxe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 58 Thomas Woolsey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 59. Stephen Gardinar.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 60 Iohn Poynet.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 61. Iohn White.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 62. Robert Horne.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 63. Iohn Watson.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 64. Thomas Cooper.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 65. William Wickham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 66. Willam Day.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 67. Thomas Bilson.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. 〈◊〉.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Nigellus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Galfridus Rydall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. William Longchamp.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Eustachius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6. Iohn de Fontibus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7. Geoffry de Burgo.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8. Hugh Norwold.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 9. William de Kilkenny.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10. Hugh Balsam.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11 Iohn de Kyrkby.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 12 VVilliam de Luda.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 13 Ralph Walpoole.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 14 Robert Orford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15 Iohn de Keeton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 16 Iohn Hotham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17 Simon Mountacute.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18 Thomas Lylde.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19 Simon Langham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20 Iohn Barnet.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21. Thomas Arundell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22 Iohn Fordham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23 Philip Morgan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24 Lewes Lushborough.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25 Thomas Bourchier.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26 William Gray.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27 Iohn Moorton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28 Iohn Alcocke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29 Richard Redman.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 30 Iames Stanley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31 Nicholas West.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32. Thomas Goodrich.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33. Thomas Thirlby.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34 Richard Coxe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35. Martin Heton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36. Lancelot Andrewes.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Remigius de Feschamp.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Robert Bloett.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Alexander.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Robert de Chisney.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Walter de Constantijs.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6. Saint Hugh.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7 William de Bleys.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8 Hugh Wallys.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. Robert Grosse-teste.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10 Henry Lexinton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11 Benedictus Grauesend.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 12 Oliuer Sutton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 13 Iohn d' Aldarby.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 14 Thomas Beake.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15 Henry Burwash.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 16 Thomas le Becke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17 Iohn Synvvell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18 Iohn Bokingham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19 Henry Beaufort.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20 Philip Repingdon.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21. Richard Flemming.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22 William Gray.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23 William Alnewike.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24 Marmaduke Lumley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25 Iohn Chadworth.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26 Thomas Rotheram.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27. Iohn Russell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28 Willam Smith.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29 Thomas Woolsey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 30. William Atwater.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31 Iohn Longland.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32 Henry Holbech.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33 Iohn Tayler.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34 Iohn White.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35 Thomas Watson.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36. Nicholas Bullingham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37. Thomas Cooper.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38 William Wickham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39 William Chaderton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40 William Barlow.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41 Rich: Neile.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Dwyna.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Cellach.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Trumhere.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Iaruman.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Cedda.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6. Winfride.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7. Saxulf.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8. Headda, al: Eathedus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 9. Aldwyn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10. Witta.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-After Witta succeeded these.11. Hemel. He died ann. 764.12. Cuthfrid.Berthun.764. He died 785. HigbeThe olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33. Peter.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34. Robert de Limesey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35. Robert Peche, alias Peccam.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36. Roger de Clinton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37. Walter Durdent.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38. Richard Peche.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39. Girardus Puella, or La pluelle.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40. Hugh Nouant, or Nunant.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41. Geffry de Muschamp.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 42. Walter de Gray.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 43. William de Cornehull.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 44. Alexander de Sauensby.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 45 Hugh de Pateshull.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 46 Roger de Weseham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 47 Roger de Molend, alias Longespe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 47. Walter de Langton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 48 Roger Northborough.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 49 Robert Stretton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 50 Walter Skirlawe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 51 Richard Scroope.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 52 Iohn Burghill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 53 Iohn Keterich.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 54 Iames Cary.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 55 William Heiworth.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 56 William Boothe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 57 Nicholas Close.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 58 Reginald Butler.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 59 Iohn Halse, or Hales.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 60 William Smith.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 61 Iohn Arundell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 62 Geoffry Blithe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 63 Rowland Lee.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 64 Richard Sampson.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 65 Ralfe Ban•.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 66 Thomas Bentham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 67 William Ouerton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 68 George Abbot.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 69 Richard Neyle.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 70 Iohn Ouerall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1 Aldelm.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Fordhere.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-After him succeeded these.3. Herewald,737. He was present at the Councel held by Cuthbert ArchbishopThe olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Herman.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Osmond.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Roger.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Ioceline.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Hubert.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6. Robert.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7. Richard Poore.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8. Robett Byngham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 9. William of Yorke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10. Gyles de Brideport.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11. Walter de la Wyle.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 12. Robert de Wikehampton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 13. Walter Scammell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 14. Henry de Braundstone.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15. Laurence de Hawkeborne.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 16. William de Come•.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17. Nicholas de Longespe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18. Simon de Gaunt.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19. Roger de Mortiuall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20 Robert Wyuill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21. Rafe Erghum.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22. Iohn Waltham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23. Richard Metford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24 Nicholas Bubwith.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25. Robert Halam.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26 Iohn Chaundler.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27. Robert Neuill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28 William Ayscoth.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29 Richard Beauchampe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 30. Leonell Wooduill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31. Thomas Langton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32. Iohn Blythe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33. Henry Deane.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34 Edmund Audeley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35. Laurent Campegius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36 Nicholas Shaxton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37. Iohn Capon.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38. Iohn Iewell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39. Edmund Gheast.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40. Iohn Piers.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41 Iohn Coldwell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 42. Henry Cotton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Plegmund.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-2 Wifelinus, or Vlfelmus, who succéeded Adelm both here and at Canterbury. He liued here nine yéeresThe olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15. Giso.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 16. Iohn de Villula.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17. Godfry.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18. Robert.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19. Reginald Fitzioceline.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20. Sauaricus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21. Ioceline de Welles.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22. Roger.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23. William Bitton, or Button.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24. Walter Giffard.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25. William Button or Bitton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26. Robert Burnell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27. William de Marchia.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28. Walter Haselshaw.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29. Iohn Drokensford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 30. Ralfe of Shrewsbury.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31. Iohn Barnet.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32. Iohn Harewell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33. Walter Skirlaw.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34. Ralph Erghum.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35. Henry Bowet.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36. Nicholas Bubwith.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37. Iohn Stafford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38 Thomas Bekinton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39. Robert Stillington.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40 Richard Foxe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41 Oliuer King.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 42. Hadrian de Castello.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 43. Thomas Woolsey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 44. Iohn Clerke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 45 William Knight.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 46. William Barlow.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 47. Gilbert Bourne.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 48. Gilbert B•rkley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 49. Thomas Godwyn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 50. Iohn Styll.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 51. Iames Mountague.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10. Stigandus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11. Grinketellus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 12. Egelmare.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. Ar•astus the first Bishop of The•ford.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. William Herbert last of Thetford, and first Bishoppe of Norwich.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Euerard.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. William Turbus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4 Iohannes Oxonienses.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Iohn de Grey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6. Pandulfus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7. Thomas de Blundeuill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8. Radulphus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 9. William de Raleigh.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10 Walter de Sufield.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11. Simon de Wanton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 12. Roger de Skerwyng.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 13 William Middleton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 14 Ralph de Walpoole.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15. Iohn Salmon.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 16. William Ayermin.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17. Anthony de Becko.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18. William Bateman.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19. Thomas Piercy.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20. Henry Spencer.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21. Alexander.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22. Richard Courtney.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23. Iohn Wakering.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24. William Alnwicke.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25. Thomas Browne.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26 Gualter Hart.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27. Iames Goldwell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28. Thomas Ian.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29. Richard Nyx.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 30. William Rugge, alias Reps.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31. Thomas Thyrlbey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32. Iohn Hopton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33. Iohn Parkhurst.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34. Edmund Freake.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35. Edmund Scambler.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36. William Redman.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37. Iohn Iegon.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Robert King.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Hugh Curwyn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Iohn Vnderhill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Iohn Bridges.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Iohn Chambers.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Dauid Poole.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Edmund Scambler.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Richard Howland.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Thomas Doue.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Paul Bush.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Iohn Holyman.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Richard Cheyny.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Iohn Bullingham:
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5. Richard Fletcher.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6. Iohn Thornborough.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Saint Dauid.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-After Saint Dauid sate successiuely these, as Giraldus setteth them downe.2 Cenau•, who was first BiThe olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4 Vbylwynus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5 Aidan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6 Elgistil.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7 Lunape•us.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8 Comegern, alias Comerkgius, alias Gomergwnius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 9 Argwistill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10 Guruan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11 Guodloiu.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 12 Edilbiu, alias Edilbnins.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 13. Grecielus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 14. Berthygwn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15. Trychan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15. Eluogus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17. Catgwaret.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18. Cerenhir.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19. Nobis.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20. Gulfridus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21. Nudd.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22. Cimeliauc.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23. Libian.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24. Marchliuth. 25. Pater.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26. Gucan or Gogwan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27. Bledri.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28. Ioseph.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29. Herewald.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Heruaeus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2 Saint Assaph.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Paulinus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Cedda.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Wilfridus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Bosa.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5 Iohn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6 Wilfridus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7 Egbert.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2 Caena, alias Albertus, alias Adelbert.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 9 Eanbaldus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 10 Eanbaldus. 2.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11 Wulsius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 12 Wimundus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 13 Wilferus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 14 Ethelbald.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 15 Redward.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 16 Wulstanus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 17 Oskitell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 18 Athelwold.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 19 Oswald.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 20 Aldulfe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 21 Wulstan. 2.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 22. Alfricus Puttoc.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23 Kinsius.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24 Aldredus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25 Thomas.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26 Gerard.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27 Thomas, 2.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28 Thurstan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25 Henry Murdac.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Saint William.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31 Roger.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32 Geoffry Plantaginet.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33 Walter Gray.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34 Sewall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35 Godfry de Kinton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 36 Walter Giffard.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37 William Wickwane.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38 Iohn Romane.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39 Henry Newerk.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40 Thomas de Corbridge.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41 William de Greenfield.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 42 William de Melton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4 William le Zouch.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 44 Iohn Thursby.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 45 Alexander Neuil.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 46 Thomas Arundell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 47. Robert Waldby.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 48 Richard Scroope.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 49 Henry Bowet.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 50 Iohn Kempe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 52 William Boothe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 52 George Neuill.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 53 Lawrence Boothe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 54 Thomas Rotheram, aliàs Scot.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 55 Thomas Sauage.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 56 Christopher Bambridge.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 57 Thomas Woolsey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 58 Edward Lee.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 59 Robert Holgate.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 60 Nicolas Heath.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 61. Thomas Young.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 62. Edmund Grindall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 63. Edwyn Sandes.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 64. Iohn Piers.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 65. Matthew Hutton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 66. Tobias Matthew.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Aidanus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2. Fina•.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3. Colman.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4. Tuda.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5 Eat•.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6 Saint Cuthbert.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7. Eadbertus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-After Eadbert followed in order successiuely these.8 After him succéeded Egbert, whome some call EdfThe olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 11 Higbald.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-12 Egbert consecrate Iune 11. 802. died 819. Fl. Wig. saith Ethoredus succéeded.13 Egfridus, he diedThe olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 23 Aldhunus, or Alduinus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 24 Eadmund.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 25 Eadred.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26 Egelric.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 27 Egelwyn.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 28 Walter, or Walcher.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 29 William Kairlipho.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 30 Ranulf Flambard.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 31 Geoffry Rufus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 32 Will. de Sancta Barbara.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 33 Hugh Pusar.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 34 Philip of Poitiers.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 35 Richard de Marisco.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 26 Richard Poore.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 37 Nicholas de Farnham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 38 Walter de Kirkham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 39 Robert Stitchell.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 40 Robert de Insula.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 41 Anthony Beake.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 42 Richard Kellow.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 43 Lewes Beaumont.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 44 Richard de Bury.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 45 Thomas Hatfield.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 45 Iohn Fordham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 47 Walter Skirlaw.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 48 Thomas Langley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 49 Robert Neuill•
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 50 Laurence Boothe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 51 William Dudley.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 52 Iohn Sherwood.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 53 Richard Foxe.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 54 William Seuerus.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 55 Christopher Bambridge.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 56 Thomas Ruthall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 57 Thomas Woolsey.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 58 Cutbert Tunstall.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. Iames Pilkinton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 60 Richard Barnes.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 61. Matthew Hutton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 62 Tobias Matthew.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 63 William Iames.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. • Iohn Bird.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 2 Iohn Coates.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 3 Cuthbert Scot.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 4 William Downham.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 5 Willaim Chaderton.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 6 Hugh Billet.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 7 Richard Vaughan.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 8 George Lloid.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
-
-1. 1. Pope Ioane.
-The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by hisThe Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
-    _ A Catalogue of the Deanes of Christ-Church in Oxford.
+1. A DISCOVRSE CONCERNING THE first conuersion of this Island of BRITAINE vnto Christian Religion.
+
+    _ CHAP. I.
+
+    _ CHAP II.
+
+    _ CHAP. III.
+
+    _ CHAP. IIII.
+
+1. THE ARCHBISHOPS OF CANTERBVRIE.
+
+    _ 1. Augustine.
+
+    _ 2. Laurence.
+
+    _ 3. Mellitus.
+
+    _ 4. Iustus.
+
+    _ 5. Honorius.
+
+    _ 6. Deus-dedit, or Adeodatus.
+
+    _ 7. Theodorus.
+
+    _ 8. Brithwald.
+
+    _ 9. Tatwyn.
+
+    _ 10. Nothelmus.
+
+    _ 11. Cuthbert or Cudbrict.
+
+    _ 12. Bregwyn.
+
+    _ 13. Lambert. al. Iainbert.
+
+    _ 14. Athelard or Edelred.
+
+    _ 15. Wlfred.
+
+    _ 16. Theologild.
+
+    _ 17. Celnoth.
+
+    _ 18. Athelredus.
+
+    _ 19. Plegmund.
+
+    _ 20. Athelmu•.
+
+    _ 21. Wlfelmus.
+
+    _ 22. Odo Seuerus.
+
+    _ 23. Dunstan.
+
+    _ 24. Ethelgar.
+
+    _ 25. Siricius.
+
+    _ 26. Aluricius alias Alfricus.
+
+    _ 27. Elphege.
+
+    _ 28. Liunig alias Lifwing.
+
+    _ 29. Agelnothus alias Aethelnotus.
+
+    _ 30. Eadsin.
+
+    _ 31. Robert, surnamed Gemeticensis.
+
+    _ 32. Stigand.
+
+    _ 33. Lanfrank.
+
+    _ 34. Anselm.
+
+    _ 35. Rodolphus.
+
+    _ 36. William Corbell.
+
+    _ 37. Theobald.
+
+    _ 38. Thomas Becket.
+
+    _ 39. Richard.
+
+    _ 40. Baldwin.
+
+    _ 41. Reginald Fitz-loceline.
+
+    _ 42. Hubert walter.
+
+    _ 43 Stephen Langton.
+
+    _ 44. Richard Wethershed.
+
+    _ Saint Edmund.
+
+    _ 46. Boniface.
+
+    _ 47. Robert Kilwardby.
+
+    _ 48 Iohn Peckham.
+
+    _ 49. Robert Winchelsey.
+
+    _ 50. Walter Reynolds.
+
+    _ 51 Simon Mepham.
+
+    _ 52. Iohn Stratford.
+
+    _ 53. Tho. Bradwar•in.
+
+    _ 54 Simon Islip.
+
+    _ 55 Simon Langham.
+
+    _ William Wittlesey.
+
+    _ 57 Simon Sudbury.
+
+    _ 58 William Courtney.
+
+    _ 59. Thomas Arundel.
+
+    _ 60. Henry Chichley.
+
+    _ 61. Iohn Stafford.
+
+    _ 62. Iohn Kemp.
+
+    _ 63. Thomas Bourchier.
+
+    _ 64. Iohn Moorton.
+
+    _ 65. Henry Deane.
+
+    _ 66. William Warham.
+
+    _ 67. Thomas Cranmer.
+
+    _ 68 Reginald Poole.
+
+    _ 69. Mathew Parker.
+
+    _ 70. Edmund Gryndall.
+
+    _ 71. Iohn Whitgift.
+
+    _ 72. Rich Bancroft.
+
+    _ 73. George Abbot.
+The olde corporation of Prior and Couent of Christchurch being dissolued, K. Henry the eight, by his
+1. THE BISHOPPES OF LONDON.
+
+    _ 1 Mellitus.
+
+    _ 2. Ceadda.
+
+    _ 3 Wina.
+
+    _ 4 Erkenwalde.
+
+    _ After Erkenwald, sate these in order successiuely.
+
+    _ 33 William.
+
+    _ 34 Hugh d'Oriuall.
+
+    _ 35. Mauritius.
+
+    _ 36 Richard Beauveyes.
+
+    _ 27. Gilbertus Vniuersalis.
+
+    _ 38. Robertus de Sigillo.
+
+    _ 39. Richard Beauvey•.
+
+    _ 40. Gilbert Foliot.
+
+    _ 41. Richard Fitz-neale.
+
+    _ 42. William de Sancta Maria.
+
+    _ 43. Eustachius de Fauconbridge.
+
+    _ 44. Rogerus Niger.
+
+    _ 45. Fulco Basset.
+
+    _ 46. Henry de Wingham.
+
+    _ 17. Richard Talbot.
+
+    _ 48. Henry de Sandwich.
+
+    _ 49. Iohn de Chishull.
+
+    _ 50. Richard de Grauesend.
+
+    _ 51. Ralfe de Baldocke.
+
+    _ 52. Gilbert Segraue.
+
+    _ 53. Richard Newport.
+
+    _ 54. Stephen Grauesend.
+
+    _ 55. Richard Byntworth, or Wentworth.
+
+    _ 56. Ralfe Stratford.
+
+    _ 57. Michaell Northbrooke.
+
+    _ 58. Simon Sudbury.
+
+    _ 59. William Courtney.
+
+    _ 60. Robert Braybrooke.
+
+    _ 61. Roger Walden.
+
+    _ 62. Nicholas Bubwith.
+
+    _ 63. Richard Clifford.
+
+    _ 64. Iohn Kemp.
+
+    _ 65 William Gray.
+
+    _ 66 Robert Fitz-Hugh.
+
+    _ 67 Robert Gilbert
+
+    _ 68. Thomas Kempe.
+
+    _ 69 Iohn Marshall.
+
+    _ 70 Richard Hill.
+
+    _ 71 Thomas Sauage.
+
+    _ 72 William Warham.
+
+    _ 73 William Barnes.
+
+    _ 74 Richard Fitz-Iames.
+
+    _ 75 Cuthbert Tonstall.
+
+    _ 76 Iohn Stokesley.
+
+    _ 77 Edmund Boner.
+
+    _ 78 Nicholas Ridley.
+
+    _ 79. Edmund Grindall.
+
+    _ 80 Edwyn Sands.
+
+    _ 81 Iohn Elmer.
+
+    _ 82 Richard Fletcher.
+
+    _ 83. Rich. Bancroft.
+
+    _ 84 Richard Vaughan.
+
+    _ 85 Thomas Rauis.
+
+    _ 86. George Abbot.
+
+    _ 87. Iohn King.
+
+1. THE BISHOPPES OF VVINCHESTER.
+
+    _ 1. Birinus.
+
+    _ 2. Agilbertus.
+
+    _ 3. Wina, or Wini.
+
+    _ 4. Eleutherius.
+
+    _ 5. Headda.
+
+    _ 6. Daniel.
+
+    _ 7. Humfridus.
+
+    _ 8. Kinehardus.
+
+    _ 9. Hathelardus.
+Then these:10 Egbaldus,11. Dudda.12. Kineberthus, He trauelled to Rome with the Lord Archbishop of C
+    _ 18. Swithunus.
+
+    _ 19. Adferthus.
+
+    _ 20. Dumbertus.
+
+    _ 21. Denewulsus.
+
+    _ 22 Athelmus.
+
+    _ Bertulsus.
+
+    _ 23. Frithstane.
+
+    _ 24. Brinstan.
+
+    _ 25. Elphegus Calvus.
+
+    _ 26. Elssinus, alias Alssius.
+
+    _ 27. Brithelmus.
+
+    _ 28 Ethelwald.
+
+    _ 29. Elphegus.
+
+    _ 30. Kenulphus, alias Elsius.
+
+    _ 31. Brithwold.
+
+    _ 32. Elsinus, or Eadsinus.
+
+    _ 33. Alwynus.
+
+    _ 34. Stigandus.
+
+    _ 35. Walkelyn.
+
+    _ 36. William Gifford.
+
+    _ 37. Henrie de Bloys.
+
+    _ 38. Richard Tocliue alias More.
+
+    _ 39. Godfridus de Lucy.
+
+    _ 40. Peter de la Roche.
+
+    _ 41. William de Raley.
+
+    _ 42. Ethelmarus.
+
+    _ 43 Iohn Gernsey.
+
+    _ 44. Nicholas de Ely.
+
+    _ 45 Iohn de Pontissara, alias Pountois.
+
+    _ 46. Henry Woodloke.
+
+    _ 47 Iohn Sandall.
+
+    _ 48 Reginald Asserius.
+
+    _ 49. Iohn de Stratford.
+
+    _ 50. Adam Tarlton, alias de Orlton, or Arlton.
+
+    _ 51. William Edindon.
+
+    _ 52. William Wickham.
+
+    _ 53. Henry Beaufort.
+
+    _ 54 William Waynflet.
+
+    _ 55. Peter Courtney.
+
+    _ 56 Thomas Langton.
+
+    _ 57 Richard Foxe.
+
+    _ 58 Thomas Woolsey.
+
+    _ 59. Stephen Gardinar.
+
+    _ 60 Iohn Poynet.
+
+    _ 61. Iohn White.
+
+    _ 62. Robert Horne.
+
+    _ 63. Iohn Watson.
+
+    _ 64. Thomas Cooper.
+
+    _ 65. William Wickham.
+
+    _ 66. Willam Day.
+
+    _ 67. Thomas Bilson.
+
+1. THE BISHOPPES OF ELY.
+
+    _ 1. 〈◊〉.
+
+    _ 2. Nigellus.
+
+    _ 3. Galfridus Rydall.
+
+    _ 4. William Longchamp.
+
+    _ 5. Eustachius.
+
+    _ 6. Iohn de Fontibus.
+
+    _ 7. Geoffry de Burgo.
+
+    _ 8. Hugh Norwold.
+
+    _ 9. William de Kilkenny.
+
+    _ 10. Hugh Balsam.
+
+    _ 11 Iohn de Kyrkby.
+
+    _ 12 VVilliam de Luda.
+
+    _ 13 Ralph Walpoole.
+
+    _ 14 Robert Orford.
+
+    _ 15 Iohn de Keeton.
+
+    _ 16 Iohn Hotham.
+
+    _ 17 Simon Mountacute.
+
+    _ 18 Thomas Lylde.
+
+    _ 19 Simon Langham.
+
+    _ 20 Iohn Barnet.
+
+    _ 21. Thomas Arundell.
+
+    _ 22 Iohn Fordham.
+
+    _ 23 Philip Morgan.
+
+    _ 24 Lewes Lushborough.
+
+    _ 25 Thomas Bourchier.
+
+    _ 26 William Gray.
+
+    _ 27 Iohn Moorton.
+
+    _ 28 Iohn Alcocke.
+
+    _ 29 Richard Redman.
+
+    _ 30 Iames Stanley.
+
+    _ 31 Nicholas West.
+
+    _ 32. Thomas Goodrich.
+
+    _ 33. Thomas Thirlby.
+
+    _ 34 Richard Coxe.
+
+    _ 35. Martin Heton.
+
+    _ 36. Lancelot Andrewes.
+
+1. THE BISHOPPES OF LINCOLNE.
+
+    _ 1. Remigius de Feschamp.
+
+    _ 2. Robert Bloett.
+
+    _ 3. Alexander.
+
+    _ 4. Robert de Chisney.
+
+    _ 5. Walter de Constantijs.
+
+    _ 6. Saint Hugh.
+
+    _ 7 William de Bleys.
+
+    _ 8 Hugh Wallys.
+
+    _ Robert Grosse-teste.
+
+    _ 10 Henry Lexinton.
+
+    _ 11 Benedictus Grauesend.
+
+    _ 12 Oliuer Sutton.
+
+    _ 13 Iohn d' Aldarby.
+
+    _ 14 Thomas Beake.
+
+    _ 15 Henry Burwash.
+
+    _ 16 Thomas le Becke.
+
+    _ 17 Iohn Synvvell.
+
+    _ 18 Iohn Bokingham.
+
+    _ 19 Henry Beaufort.
+
+    _ 20 Philip Repingdon.
+
+    _ 21. Richard Flemming.
+
+    _ 22 William Gray.
+
+    _ 23 William Alnewike.
+
+    _ 24 Marmaduke Lumley.
+
+    _ 25 Iohn Chadworth.
+
+    _ 26 Thomas Rotheram.
+
+    _ 27. Iohn Russell.
+
+    _ 28 Willam Smith.
+
+    _ 29 Thomas Woolsey.
+
+    _ 30. William Atwater.
+
+    _ 31 Iohn Longland.
+
+    _ 32 Henry Holbech.
+
+    _ 33 Iohn Tayler.
+
+    _ 34 Iohn White.
+
+    _ 35 Thomas Watson.
+
+    _ 36. Nicholas Bullingham.
+
+    _ 37. Thomas Cooper.
+
+    _ 38 William Wickham.
+
+    _ 39 William Chaderton.
+
+    _ 40 William Barlow.
+
+    _ 41 Rich: Neile.
+
+1. THE BISHOPPES OF Couentry and Litchfield.
+
+    _ 1. Dwyna.
+
+    _ 2. Cellach.
+
+    _ 3. Trumhere.
+
+    _ 4. Iaruman.
+
+    _ 5. Cedda.
+
+    _ 6. Winfride.
+
+    _ 7. Saxulf.
+
+    _ 8. Headda, al: Eathedus.
+
+    _ 9. Aldwyn.
+
+    _ 10. Witta.
+After Witta succeeded these.11. Hemel. He died ann. 764.12. Cuthfrid.Berthun.764. He died 785. Higbe
+    _ 33. Peter.
+
+    _ 34. Robert de Limesey.
+
+    _ 35. Robert Peche, alias Peccam.
+
+    _ 36. Roger de Clinton.
+
+    _ 37. Walter Durdent.
+
+    _ 38. Richard Peche.
+
+    _ 39. Girardus Puella, or La pluelle.
+
+    _ 40. Hugh Nouant, or Nunant.
+
+    _ 41. Geffry de Muschamp.
+
+    _ 42. Walter de Gray.
+
+    _ 43. William de Cornehull.
+
+    _ 44. Alexander de Sauensby.
+
+    _ 45 Hugh de Pateshull.
+
+    _ 46 Roger de Weseham.
+
+    _ 47 Roger de Molend, alias Longespe.
+
+    _ 47. Walter de Langton.
+
+    _ 48 Roger Northborough.
+
+    _ 49 Robert Stretton.
+
+    _ 50 Walter Skirlawe.
+
+    _ 51 Richard Scroope.
+
+    _ 52 Iohn Burghill.
+
+    _ 53 Iohn Keterich.
+
+    _ 54 Iames Cary.
+
+    _ 55 William Heiworth.
+
+    _ 56 William Boothe.
+
+    _ 57 Nicholas Close.
+
+    _ 58 Reginald Butler.
+
+    _ 59 Iohn Halse, or Hales.
+
+    _ 60 William Smith.
+
+    _ 61 Iohn Arundell.
+
+    _ 62 Geoffry Blithe.
+
+    _ 63 Rowland Lee.
+
+    _ 64 Richard Sampson.
+
+    _ 65 Ralfe Ban•.
+
+    _ 66 Thomas Bentham.
+
+    _ 67 William Ouerton.
+
+    _ 68 George Abbot.
+
+    _ 69 Richard Neyle.
+
+    _ 70 Iohn Ouerall.
+
+1. THE BISHOPPES OF SALISBVRY.
+
+    _ 1 Aldelm.
+
+    _ 2. Fordhere.
+After him succeeded these.3. Herewald,737. He was present at the Councel held by Cuthbert Archbishop
+    _ 1. Herman.
+
+    _ 2. Osmond.
+
+    _ 3. Roger.
+
+    _ 4. Ioceline.
+
+    _ 5. Hubert.
+
+    _ 6. Robert.
+
+    _ 7. Richard Poore.
+
+    _ 8. Robett Byngham.
+
+    _ 9. William of Yorke.
+
+    _ 10. Gyles de Brideport.
+
+    _ 11. Walter de la Wyle.
+
+    _ 12. Robert de Wikehampton.
+
+    _ 13. Walter Scammell.
+
+    _ 14. Henry de Braundstone.
+
+    _ 15. Laurence de Hawkeborne.
+
+    _ 16. William de Come•.
+
+    _ 17. Nicholas de Longespe.
+
+    _ 18. Simon de Gaunt.
+
+    _ 19. Roger de Mortiuall.
+
+    _ 20 Robert Wyuill.
+
+    _ 21. Rafe Erghum.
+
+    _ 22. Iohn Waltham.
+
+    _ 23. Richard Metford.
+
+    _ 24 Nicholas Bubwith.
+
+    _ 25. Robert Halam.
+
+    _ 26 Iohn Chaundler.
+
+    _ 27. Robert Neuill.
+
+    _ 28 William Ayscoth.
+
+    _ 29 Richard Beauchampe.
+
+    _ 30. Leonell Wooduill.
+
+    _ 31. Thomas Langton.
+
+    _ 32. Iohn Blythe.
+
+    _ 33. Henry Deane.
+
+    _ 34 Edmund Audeley.
+
+    _ 35. Laurent Campegius.
+
+    _ 36 Nicholas Shaxton.
+
+    _ 37. Iohn Capon.
+
+    _ 38. Iohn Iewell.
+
+    _ 39. Edmund Gheast.
+
+    _ 40. Iohn Piers.
+
+    _ 41 Iohn Coldwell.
+
+    _ 42. Henry Cotton.
+
+1. THE BISHOPPES OF Bathe and VVels
+
+    _ 1. Plegmund.
+2 Wifelinus, or Vlfelmus, who succéeded Adelm both here and at Canterbury. He liued here nine yéeres
+    _ 15. Giso.
+
+    _ 16. Iohn de Villula.
+
+    _ 17. Godfry.
+
+    _ 18. Robert.
+
+    _ 19. Reginald Fitzioceline.
+
+    _ 20. Sauaricus.
+
+    _ 21. Ioceline de Welles.
+
+    _ 22. Roger.
+
+    _ 23. William Bitton, or Button.
+
+    _ 24. Walter Giffard.
+
+    _ 25. William Button or Bitton.
+
+    _ 26. Robert Burnell.
+
+    _ 27. William de Marchia.
+
+    _ 28. Walter Haselshaw.
+
+    _ 29. Iohn Drokensford.
+
+    _ 30. Ralfe of Shrewsbury.
+
+    _ 31. Iohn Barnet.
+
+    _ 32. Iohn Harewell.
+
+    _ 33. Walter Skirlaw.
+
+    _ 34. Ralph Erghum.
+
+    _ 35. Henry Bowet.
+
+    _ 36. Nicholas Bubwith.
+
+    _ 37. Iohn Stafford.
+
+    _ 38 Thomas Bekinton.
+
+    _ 39. Robert Stillington.
+
+    _ 40 Richard Foxe.
+
+    _ 41 Oliuer King.
+
+    _ 42. Hadrian de Castello.
+
+    _ 43. Thomas Woolsey.
+
+    _ 44. Iohn Clerke.
+
+    _ 45 William Knight.
+
+    _ 46. William Barlow.
+
+    _ 47. Gilbert Bourne.
+
+    _ 48. Gilbert B•rkley.
+
+    _ 49. Thomas Godwyn.
+
+    _ 50. Iohn Styll.
+
+    _ 51. Iames Mountague.
+The Deanry of Welles was first erected in the time of King Stephen, about the yeare 1150. as before 
+1. THE BISHOPPES OF EXCETER. This discourse following is taken (for the most part) verbatim out of Master Iohn Hookers Catalogue of the Bishops of Exceter.
+
+1. A Catalogue of the Bishops of Deuonshire.
+
+1. THE BISHOPS OF EXCETER.
+
+1. A CATALOGVE of the Bishoppes of NORVVICH. Collected (for the most part) out of M. ALEXANDER NEVILL his Norwicus, by R. T.
+
+    _ 10. Stigandus.
+
+    _ 11. Grinketellus.
+
+    _ 12. Egelmare.
+
+    _ Ar•astus the first Bishop of The•ford.
+
+    _ William Herbert last of Thetford, and first Bishoppe of Norwich.
+
+    _ 2. Euerard.
+
+    _ 3. William Turbus.
+
+    _ 4 Iohannes Oxonienses.
+
+    _ 5. Iohn de Grey.
+
+    _ 6. Pandulfus.
+
+    _ 7. Thomas de Blundeuill.
+
+    _ 8. Radulphus.
+
+    _ 9. William de Raleigh.
+
+    _ 10 Walter de Sufield.
+
+    _ 11. Simon de Wanton.
+
+    _ 12. Roger de Skerwyng.
+
+    _ 13 William Middleton.
+
+    _ 14 Ralph de Walpoole.
+
+    _ 15. Iohn Salmon.
+
+    _ 16. William Ayermin.
+
+    _ 17. Anthony de Becko.
+
+    _ 18. William Bateman.
+
+    _ 19. Thomas Piercy.
+
+    _ 20. Henry Spencer.
+
+    _ 21. Alexander.
+
+    _ 22. Richard Courtney.
+
+    _ 23. Iohn Wakering.
+
+    _ 24. William Alnwicke.
+
+    _ 25. Thomas Browne.
+
+    _ 26 Gualter Hart.
+
+    _ 27. Iames Goldwell.
+
+    _ 28. Thomas Ian.
+
+    _ 29. Richard Nyx.
+
+    _ 30. William Rugge, alias Reps.
+
+    _ 31. Thomas Thyrlbey.
+
+    _ 32. Iohn Hopton.
+
+    _ 33. Iohn Parkhurst.
+
+    _ 34. Edmund Freake.
+
+    _ 35. Edmund Scambler.
+
+    _ 36. William Redman.
+
+    _ 37. Iohn Iegon.
+
+1. THE BISHOPPES OF VVORCETER.
+
+1. THE BISHOPPES OF HEREFORD.
+
+1. THE BISHOPPES OF CHICHESTER.
+
+1. THE BISHOPPES OF ROCHESTER
+
+1. THE BISHOPPES OF OXFORD.
+
+    _ 1. Robert King.
+
+    _ 2. Hugh Curwyn.
+
+    _ 3. Iohn Vnderhill.
+
+    _ 4. Iohn Bridges.
+
+      * A Catalogue of the Deanes of Christ-Church in Oxford.
+
+1. THE BISHOPPES OF GLOCESTER.
+
+1. THE BISHOPPES OF PETERBOROVGH.
+
+    _ 1. Iohn Chambers.
+
+    _ 2. Dauid Poole.
+
+    _ 3. Edmund Scambler.
+
+    _ 4. Richard Howland.
+
+    _ 5. Thomas Doue.
+
+1. THE BISHOPPES OF BRISTOLL.
+
+    _ 1. Paul Bush.
+
+    _ 2. Iohn Holyman.
+
+    _ 3. Richard Cheyny.
+
+    _ 4. Iohn Bullingham:
+
+    _ 5. Richard Fletcher.
+
+    _ 6. Iohn Thornborough.
+
+1. THE BISHOPPES OF S. DAVIDS.
+
+    _ 1. Saint Dauid.
+After Saint Dauid sate successiuely these, as Giraldus setteth them downe.2 Cenau•, who was first Bi
+1. THE BISHOPPES OF LANDAFF.
+
+    _ 4 Vbylwynus.
+
+    _ 5 Aidan.
+
+    _ 6 Elgistil.
+
+    _ 7 Lunape•us.
+
+    _ 8 Comegern, alias Comerkgius, alias Gomergwnius.
+
+    _ 9 Argwistill.
+
+    _ 10 Guruan.
+
+    _ 11 Guodloiu.
+
+    _ 12 Edilbiu, alias Edilbnins.
+
+    _ 13. Grecielus.
+
+    _ 14. Berthygwn.
+
+    _ 15. Trychan.
+
+    _ 15. Eluogus.
+
+    _ 17. Catgwaret.
+
+    _ 18. Cerenhir.
+
+    _ 19. Nobis.
+
+    _ 20. Gulfridus.
+
+    _ 21. Nudd.
+
+    _ 22. Cimeliauc.
+
+    _ 23. Libian.
+
+    _ 24. Marchliuth. 25. Pater.
+
+    _ 26. Gucan or Gogwan.
+
+    _ 27. Bledri.
+
+    _ 28. Ioseph.
+
+    _ 29. Herewald.
+
+1. THE BISHOPPES OF BANGOR.
+
+    _ 1. Heruaeus.
+
+1. THE BISHOPPES OF S. ASAPH.
+
+    _ 2 Saint Assaph.
+
+1. THE ARCHBISHOPS OF YORKE.
+
+    _ 1. Paulinus.
+
+    _ 2. Cedda.
+
+    _ 3. Wilfridus.
+
+    _ 4. Bosa.
+
+    _ 5 Iohn.
+
+    _ 6 Wilfridus.
+
+    _ 7 Egbert.
+
+    _ 2 Caena, alias Albertus, alias Adelbert.
+
+    _ 9 Eanbaldus.
+
+    _ 10 Eanbaldus. 2.
+
+    _ 11 Wulsius.
+
+    _ 12 Wimundus.
+
+    _ 13 Wilferus.
+
+    _ 14 Ethelbald.
+
+    _ 15 Redward.
+
+    _ 16 Wulstanus.
+
+    _ 17 Oskitell.
+
+    _ 18 Athelwold.
+
+    _ 19 Oswald.
+
+    _ 20 Aldulfe.
+
+    _ 21 Wulstan. 2.
+
+    _ 22. Alfricus Puttoc.
+
+    _ 23 Kinsius.
+
+    _ 24 Aldredus.
+
+    _ 25 Thomas.
+
+    _ 26 Gerard.
+
+    _ 27 Thomas, 2.
+
+    _ 28 Thurstan.
+
+    _ 25 Henry Murdac.
+
+    _ 3. Saint William.
+
+    _ 31 Roger.
+
+    _ 32 Geoffry Plantaginet.
+
+    _ 33 Walter Gray.
+
+    _ 34 Sewall.
+
+    _ 35 Godfry de Kinton.
+
+    _ 36 Walter Giffard.
+
+    _ 37 William Wickwane.
+
+    _ 38 Iohn Romane.
+
+    _ 39 Henry Newerk.
+
+    _ 40 Thomas de Corbridge.
+
+    _ 41 William de Greenfield.
+
+    _ 42 William de Melton.
+
+    _ 4 William le Zouch.
+
+    _ 44 Iohn Thursby.
+
+    _ 45 Alexander Neuil.
+
+    _ 46 Thomas Arundell.
+
+    _ 47. Robert Waldby.
+
+    _ 48 Richard Scroope.
+
+    _ 49 Henry Bowet.
+
+    _ 50 Iohn Kempe.
+
+    _ 52 William Boothe.
+
+    _ 52 George Neuill.
+
+    _ 53 Lawrence Boothe.
+
+    _ 54 Thomas Rotheram, aliàs Scot.
+
+    _ 55 Thomas Sauage.
+
+    _ 56 Christopher Bambridge.
+
+    _ 57 Thomas Woolsey.
+
+    _ 58 Edward Lee.
+
+    _ 59 Robert Holgate.
+
+    _ 60 Nicolas Heath.
+
+    _ 61. Thomas Young.
+
+    _ 62. Edmund Grindall.
+
+    _ 63. Edwyn Sandes.
+
+    _ 64. Iohn Piers.
+
+    _ 65. Matthew Hutton.
+
+    _ 66. Tobias Matthew.
+
+1. THE BISHOPPES OF DVRHAM.
+
+    _ 1. Aidanus.
+
+    _ 2. Fina•.
+
+    _ 3. Colman.
+
+    _ 4. Tuda.
+
+    _ 5 Eat•.
+
+    _ 6 Saint Cuthbert.
+
+    _ 7. Eadbertus.
+After Eadbert followed in order successiuely these.8 After him succéeded Egbert, whome some call Edf
+    _ 11 Higbald.
+12 Egbert consecrate Iune 11. 802. died 819. Fl. Wig. saith Ethoredus succéeded.13 Egfridus, he died
+    _ 23 Aldhunus, or Alduinus.
+
+    _ 24 Eadmund.
+
+    _ 25 Eadred.
+
+    _ 26 Egelric.
+
+    _ 27 Egelwyn.
+
+    _ 28 Walter, or Walcher.
+
+    _ 29 William Kairlipho.
+
+    _ 30 Ranulf Flambard.
+
+    _ 31 Geoffry Rufus.
+
+    _ 32 Will. de Sancta Barbara.
+
+    _ 33 Hugh Pusar.
+
+    _ 34 Philip of Poitiers.
+
+    _ 35 Richard de Marisco.
+
+    _ 26 Richard Poore.
+
+    _ 37 Nicholas de Farnham.
+
+    _ 38 Walter de Kirkham.
+
+    _ 39 Robert Stitchell.
+
+    _ 40 Robert de Insula.
+
+    _ 41 Anthony Beake.
+
+    _ 42 Richard Kellow.
+
+    _ 43 Lewes Beaumont.
+
+    _ 44 Richard de Bury.
+
+    _ 45 Thomas Hatfield.
+
+    _ 45 Iohn Fordham.
+
+    _ 47 Walter Skirlaw.
+
+    _ 48 Thomas Langley.
+
+    _ 49 Robert Neuill•
+
+    _ 50 Laurence Boothe.
+
+    _ 51 William Dudley.
+
+    _ 52 Iohn Sherwood.
+
+    _ 53 Richard Foxe.
+
+    _ 54 William Seuerus.
+
+    _ 55 Christopher Bambridge.
+
+    _ 56 Thomas Ruthall.
+
+    _ 57 Thomas Woolsey.
+
+    _ 58 Cutbert Tunstall.
+
+    _ Iames Pilkinton.
+
+    _ 60 Richard Barnes.
+
+    _ 61. Matthew Hutton.
+
+    _ 62 Tobias Matthew.
+
+    _ 63 William Iames.
+
+1. CARLILE.
+
+1. THE BISHOPPES OF CARLILE.
+
+1. THE BISHOPPES OF CHESTER.
+
+    _ • Iohn Bird.
+
+    _ 2 Iohn Coates.
+
+    _ 3 Cuthbert Scot.
+
+    _ 4 William Downham.
+
+    _ 5 Willaim Chaderton.
+
+    _ 6 Hugh Billet.
+
+    _ 7 Richard Vaughan.
+
+    _ 8 George Lloid.
+
+1. A DISCOVRSE CONCERNING SVCH Englishmen as haue either beene, or in our histories reputed, Cardinals of the Church of Rome.
+
+    _ 1. Pope Ioane.
+
+1. A NOTE OF THOSE Monasteries, whose Abbots had voice in the vpper house of Parliament, as appeareth in the Records, Anno 1514.
 
 #####Back#####
-The succession of the bishops of England since the first planting of Christian religion in this isla
+
+1. Errata.
+
 **Types of content**
 
   * There are 314 **verse** lines!
